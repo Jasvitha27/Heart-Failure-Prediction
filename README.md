@@ -127,7 +127,7 @@ GitHub:
 https://github.com/Jasvitha27
 
 LinkedIn:
-https://www.linkedin.com/in/bareddy-jasvitha/
+https://www.linkedin.com/in/bareddy-jasvitha-4a7227336/
 
 Email:
 jasvithareddy9487@gmail.com
